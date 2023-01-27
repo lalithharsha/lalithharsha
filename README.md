@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Frontend**
 
-- 📫 How to reach me **lalith@gmail.com**
+- 📫 How to reach me **lalith1732@gmail.com**
 
 - ⚡ Fun fact **I like Chicken**
 
